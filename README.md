@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lulus.ak@gmail.com**
 
-- ⚡ Fun fact **I love music, as a Statistician I also familiar with R Programming Languages. I love to share my skills in humanitarian project**
+- ⚡ Fun fact **I love music, as a Statistician I also familiar with R Programming Languages. I love to volunteer my skills for humanitarian project**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
